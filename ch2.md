@@ -1,4 +1,4 @@
-# Chapter 2: The bad chapter
+# Chapter 2: The bad chapter:
 
 -----
 

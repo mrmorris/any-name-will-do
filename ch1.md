@@ -1,4 +1,4 @@
-# Chapter 1: The great chapter!!!
+# Chapter 1: The great chapter:
 
 -----
 
