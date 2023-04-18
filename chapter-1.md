@@ -1,6 +1,8 @@
-# Chapter 1
+# Chapter 1: Blue!!
 
 ----
+
+Edits 
 
 This is chapter 1!
 
